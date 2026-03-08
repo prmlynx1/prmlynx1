@@ -15,7 +15,7 @@
 ## Connect with Me
 - **Discord Server:** [Join here](https://discord.gg/ZUffzcQGzE)
 - **Instagram:** [@prv.lynx1](https://www.instagram.com/prv.lynx1/)
-- **Instagram:** [Gunslol](https://guns.lol/lynx1)
+- **Gunslol:** [Gunslol](https://guns.lol/lynx1)
 
 ---
 
